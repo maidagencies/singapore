@@ -1,7 +1,7 @@
 # The beginner's guide to Hiring A Maid In Singapore.
 > Gone are the days when people outsourced their maids through neighbours, officemates, friends, and relatives.
 ## Chapter 1 - Why engage a maid agency?
-### 8 benefits of hiring a maid agency
+### 9 benefits of hiring a maid agency
 In today’s age where women are increasingly joining professional work, it is difficult to handle both professional and house work life. You will always need to create time to clean your house and do other chores. It is, therefore, advisable that you hire a helper from a maid agency to help do your household chores. Here are the reasons why you should hire a helper through a maid agency:
 #### Professional training
 All maids from a maid agency are trained professionals who can handle cleaning chores. Some of these chores might be impossible for you to handle. All the cleaning tasks are performed to the details you might not have the time for. You don’t, therefore, have to train the maid yourself.
@@ -18,7 +18,11 @@ When you get a helper from maid agency, you will be able to devote more time to 
 #### Increased house value
 Cleaning the house yourself might mean neglecting many things like water and leave it to turn into moulds. Stains that were small may turn into big spots that you may not be able to solve due to time constraints. However, when you hire a helper from a maid agency, your house will be cleaned to the core. This can improve the future resale value of your house.
 #### Guaranteed cleaning
-Hiring a maid from a [maid agency](https://expressmaid.com.sg) will guarantee you daily cleaning services. This will come as part of the agreement you sign with the maid agency.
+Hiring a maid from a maid agency will guarantee you daily cleaning services. This will come as part of the agreement you sign with the maid agency. 
+#### Outsourcing of work
+Hiring a maid takes up a lot of time. And in sunny Singapore where time is never enough, outsource the menial tasks to the maid agencies so that you have more time to spend on the finer things in life.
+
+Readers may take a look at [https://expressmaid.com.sg](https://expressmaid.com.sg) and the services they provide.
 
 ## Chapter 2 - How to choose the right maid agency?
 Gone are the days when people outsourced their maids through neighbours, officemates, friends, and relatives. Going this route can be a time waster, especially if you need a maid immediately. That’s where the maid agency should come in handy. Yet you might have no idea which maid agency to choose from among the hundreds available. Here are a few things to look out for:
@@ -46,3 +50,6 @@ If your maid is from an agency, she is most likely to be reasonably educated. Si
 #### Take good care of your maid.
 Any employer is responsible for the health and well-being of the foreign maid you hired from an agency. You need to make a provision for proper accommodation, proper medical care, and safe working conditions. Your maid from the agency should get enough mental and physical rest. As a rule, you should give her a regular rest day, at least once a week. All you have to do is agree on which day of the week she will take time off duty. Your maid agency will ensure that the agreement is in writing.
 There is, therefore, no reason why you shouldn’t hire a foreign maid through an agency.
+
+## References
+All Information from [Express Maid Agency](https://expressmaid.com.sg/)
