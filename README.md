@@ -1,6 +1,5 @@
-# Singapore
-The beginner's guide to Hiring A Maid In Singapore.
-
+# The beginner's guide to Hiring A Maid In Singapore.
+> Gone are the days when people outsourced their maids through neighbours, officemates, friends, and relatives.
 ## Chapter 1 - Why engage a maid agency?
 ### 8 benefits of hiring a maid agency
 In today’s age where women are increasingly joining professional work, it is difficult to handle both professional and house work life. You will always need to create time to clean your house and do other chores. It is, therefore, advisable that you hire a helper from a maid agency to help do your household chores. Here are the reasons why you should hire a helper through a maid agency:
